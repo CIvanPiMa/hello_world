@@ -4,4 +4,4 @@
 hello internauta
 CIvanPiMa here
 
-And I hope to be satisfied with wath I do someday
+And I hope to be satisfied with what I do someday
